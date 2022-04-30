@@ -1,3 +1,3 @@
-![alt text](https://github.com/bottifyDoc/.github/blob/main/cover2.jpg?raw=true)
+![alt text](https://github.com/bottifyDoc/.github/blob/main/pic-1200-600.png?raw=true)
 
 
